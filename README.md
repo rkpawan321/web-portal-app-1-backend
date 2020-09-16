@@ -1,7 +1,3 @@
-Coding Challenge 
-
-Submitted By :
-
 Name :  Pawan R K
 
 Phone : +91 9482234279
